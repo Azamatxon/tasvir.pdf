@@ -1,0 +1,2 @@
+# tasvir.pdf
+Tasvir chizish
